@@ -1,1 +1,0 @@
-# julio-galindo.github.io
